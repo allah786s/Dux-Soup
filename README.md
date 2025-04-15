@@ -4,7 +4,7 @@
 
 Dux-Soup is one of the top LinkedIn automation tools out there, trusted by marketers, recruiters, and sales pros.
 
-And right now, you can grab an incredible deal: [up to 75% off](https://www.dux-soup.com/pricing?fpr=salman70) with the latest Dux-Soup coupons.
+And right now, you can grab an incredible deal: **[up to 75% off](https://www.dux-soup.com/pricing?fpr=salman70)** with the latest Dux-Soup coupons.
 
 ## Best Dux-Soup Coupon Codes for April 2025
 
